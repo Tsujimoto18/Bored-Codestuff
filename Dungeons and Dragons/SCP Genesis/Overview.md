@@ -1,0 +1,1 @@
+SCP Genesis is a campaign based on the aftermaths of a K-Class event that occured during the lifetime of the SCP Foundation.

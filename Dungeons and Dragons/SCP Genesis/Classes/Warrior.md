@@ -1,0 +1,1 @@
+A warrior often uses some type of melee weapon.
