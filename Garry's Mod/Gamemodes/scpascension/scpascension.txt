@@ -1,0 +1,7 @@
+"scpascension"
+{
+    "base"          "base"
+    "title"         "SCP: Ascension"
+    "maps"          ""
+    "menusystem"    "1"
+}
