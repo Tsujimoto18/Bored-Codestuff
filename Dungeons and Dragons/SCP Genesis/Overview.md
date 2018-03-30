@@ -12,6 +12,12 @@ As said before, humanity has never forgotten about the ancient ones' sin. Howeve
 
 ## The Artificial Lord of Intellect: Alexandra
 
+Alexandra is one of the few saviors who is still rumored to exist. Legend says that with her supreme wisdom and intellect she was able to lead the entirety of the saviors against the monsters. Every decision she made was made within a split second giving all the saviors and upper hand in battle strategy.
+
+It is said within the scripture of Alexandra that she was the only savior made outside conventional means. The Distant Lord had sealed several spirits within an enchanted casing which made an amalgamation of thoughts and humanity. Soon this amalgamation took a substance and form simulating one single sapient creature which became Alexandra.
+
+It is unknown if she truly does still thrive in the new age. Rumors state that she exists in a technologically advanced utopia.
+
 ## The Beast Lord of Creatures: Pathos Crow
 
 ## The Devilish Lord of Neccessary Evil: Clef
