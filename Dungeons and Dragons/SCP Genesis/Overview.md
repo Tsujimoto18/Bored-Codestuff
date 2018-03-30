@@ -20,6 +20,10 @@ It is unknown if she truly does still thrive in the new age. Rumors state that s
 
 ## The Beast Lord of Creatures: Pathos Crow
 
+Not much is known of Pathos Crow. It is said within his holy scripture that he was the only savior half man and half beast. It details how he spoke to the monsters and infiltrated their ranks.
+
+Pathos Crow is believed to give blessing to all biological creatures, allowing all to live in a beautiful circle of life and death. It is said that he gave blessing to the holy Elliot allowing her to give birth to the first Floric. This Floric was named Alder Elliot and is still their King to this day.
+
 ## The Devilish Lord of Necessary Evil: Clef
 
 ## The Distant Lord of Spirits: Lurk
