@@ -26,6 +26,10 @@ Pathos Crow is believed to give blessing to all biological creatures, allowing a
 
 ## The Devilish Lord of Necessary Evil: Clef
 
+Clef is the most known savior and serves mostly as an example of the necessary evils we may be encountered with in our daily lives. During the events of the greatest sin, Clef was one of the more prominent and disastrous saviors killing the 13 leaders of the ancient ones and using their bodies to combat the monsters. It was known to all back then and still known now that Clef is to be feared as a man more demon than human.
+
+> "A man comes when a man is needed. Whether or not they like it they will be forced to make a decision between two bad outcomes, and they will live with it for the rest of their lives. You don't like it? Fuck you, I don't give a shit either way." - Excerpt from documentary `A Talk with Bright`
+
 ## The Distant Lord of Spirits: Lurk
 
 ## The Eternal Lord of Trickery: Doktur Bright
